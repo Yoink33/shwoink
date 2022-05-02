@@ -1,3 +1,3 @@
 # Überfall
 
-gimme Kouhle!
+gimme Kohle!
